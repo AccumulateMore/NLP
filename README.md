@@ -28,7 +28,7 @@
 
 | 【深度学习 学习交流①群】 | 【深度学习 学习交流②群】 | 微信 | 
 | -------- | -------- | -------- |
-| ![312f346ad393a2f617f21da7ffec9d8](https://github.com/AccumulateMore/CV/assets/60348867/c99750a2-89c0-45ed-bf42-e8f63a222d60)<br/> | ![2f44c2648aaf04f393162501e9e4e0a](https://github.com/AccumulateMore/CV/assets/60348867/d6c44e7b-8349-4de3-b91b-ed62ee7c1544)<br/> | ![7849d9a28b4242737194a6d3e685688](https://github.com/user-attachments/assets/13a8df20-ad94-4f81-a2fa-bb674785c9a4)<br> | 
+| ![312f346ad393a2f617f21da7ffec9d8](https://github.com/AccumulateMore/CV/assets/60348867/c99750a2-89c0-45ed-bf42-e8f63a222d60)<br/> | ![2f44c2648aaf04f393162501e9e4e0a](https://github.com/AccumulateMore/CV/assets/60348867/d6c44e7b-8349-4de3-b91b-ed62ee7c1544)<br/> | ![image](https://github.com/user-attachments/assets/e307652e-f333-4d10-9b89-7ebe8a250483)<br> | 
 
 超过200人，扫码入群方式失效，只能微信好友邀请入群。
 
@@ -153,7 +153,7 @@
 
 | 金九 内推第一名 | 银十 内推第一名 | 2024内推第一名 | 
 | ------ |  ------ |  ------ | 
-| ![eda6e9ca0f5ae0ca9da1dd193e17306](https://github.com/user-attachments/assets/e2f38221-3112-4c28-bf96-fa86fd82aa72)<br/>|![21ad65da6049aed8a878b5f5c011d7a](https://github.com/user-attachments/assets/c5316cb3-0943-46a0-8c2d-8aed86ff5149)<br/> | ![7849d9a28b4242737194a6d3e685688](https://github.com/user-attachments/assets/74323ff7-965a-4f4d-bb50-86a81cec6a91)<br> | 
+| ![eda6e9ca0f5ae0ca9da1dd193e17306](https://github.com/user-attachments/assets/e2f38221-3112-4c28-bf96-fa86fd82aa72)<br/>|![21ad65da6049aed8a878b5f5c011d7a](https://github.com/user-attachments/assets/c5316cb3-0943-46a0-8c2d-8aed86ff5149)<br/> | ![7849d9a28b4242737194a6d3e685688](https://github.com/user-attachments/assets/bd986345-dd00-4c72-912e-93ee25b9d2f8)<br> | 
 
 一起沾沾喜气，好运是可以传染的~
 
