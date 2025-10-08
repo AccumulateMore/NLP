@@ -154,7 +154,7 @@
 | 2024届年度 内推第一名 | 2024届年度 内推第一名 | 2024届年度 内推第一名 |
 | ------ | ------ | ------ |
 | <div align="center"><img width="1080" height="1920" src="https://github.com/user-attachments/assets/1fc17ea7-23a5-47a9-9bfe-0f15390bc6a7" /></div> | <div align="center"><img width="1080" height="1920" src="https://github.com/user-attachments/assets/72d93bf4-5f3c-435e-9f87-e80851b5ef1e" /></div> | <div align="center"><img width="1080" height="1920" src="https://github.com/user-attachments/assets/561e9a32-d188-457e-a7f9-6398c85591c5" /></div> |
-| <div align="center">一起沾沾喜气，好运是可以传染的~</div> | <div align="center">一起沾沾喜气，好运是可以传染的~</div> | <div align="center">一起沾沾喜气，好运是可以传染的~</div> |
+| <div align="center">一起沾沾喜气，好运是可以传染的</div> | <div align="center">一起沾沾喜气，好运是可以传染的</div> | <div align="center">一起沾沾喜气，好运是可以传染的</div> |
 
 一起沾沾喜气，好运是可以传染的~
 
