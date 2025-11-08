@@ -15,7 +15,7 @@
 
 我的YouTube主页, 还有其他面试必刷的笔记，希望能帮助到你~
 
-1. https://youtube.com/@小王同学在积累
+1. https://space.bilibili.com/402601153?spm_id_from=333.33.0.0
    
 "♥我的笔记，希望对你有帮助♥"
 
