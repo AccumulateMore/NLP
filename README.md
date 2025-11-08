@@ -13,7 +13,7 @@
 
 1. https://github.com/AccumulateMore
 
-我的YouTube主页, 还有其他面试必刷的笔记，希望能帮助到你~
+我的哔哩哔哩主页, 还有其他面试必刷的笔记，希望能帮助到你~
 
 1. https://space.bilibili.com/402601153?spm_id_from=333.33.0.0
    
