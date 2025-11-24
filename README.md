@@ -152,7 +152,7 @@
 | <div align="center"><img width="1080" height="1920" src="https://github.com/user-attachments/assets/1fc17ea7-23a5-47a9-9bfe-0f15390bc6a7" /></div> | <div align="center"><img width="1080" height="1920" src="https://github.com/user-attachments/assets/72d93bf4-5f3c-435e-9f87-e80851b5ef1e" /></div> | <div align="center"><img width="1080" height="1920" src="https://github.com/user-attachments/assets/561e9a32-d188-457e-a7f9-6398c85591c5" /></div> |
 | <div align="center">一起沾沾喜气，好运是可以传染的</div> | <div align="center">一起沾沾喜气，好运是可以传染的</div> | <div align="center">一起沾沾喜气，好运是可以传染的</div> |
 
-![b7dbcf3d7d27360c2b567958ee6364c7](https://github.com/user-attachments/assets/3c7b5d93-37bd-4008-bcd3-9fcd9905e7ce)
+![deacdd636739624967e5ff635212b8ab](https://github.com/user-attachments/assets/c09ea17e-3cc1-4a36-a5c9-5c3245940400)
 
 我的经验：拿offer最快的方式，就是不走弯路，不走错路。方向错了，努力没有意义。
 
