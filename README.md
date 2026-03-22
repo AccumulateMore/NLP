@@ -40,7 +40,7 @@
 
 联影简介：上市千亿公司，在国家号召自主研发高端医疗器械背景下，发展前景十分广阔。
 
-![b70fc5d9197b4beb37701700086fbf7e](https://github.com/user-attachments/assets/ba14e6e2-2097-4697-92fc-d7f825580a7c)
+![fea1b2b900d67937c76686e3c47124bb](https://github.com/user-attachments/assets/6adb6382-adae-4c0d-8041-1026b06a00f5)
 
 岗位职责【图像方向】：
 
